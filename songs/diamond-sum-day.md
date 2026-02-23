@@ -1,0 +1,24 @@
+Hey, I'm just an old chunk of coal
+But I'm gonna be a diamond some day
+I'm gonna grow and glow 'til I'm so blue pure perfect
+I'm gonna put a smile on everybody's face
+I'm gonna kneel and pray every day
+At least I should become vain along the way
+I'm just an old chunk of coal now Lord
+But I'm gonna be a diamond some day
+I'm gonna learn the best way to walk
+I'm gonna search and find a better way to talk
+I'm gonna spit and polish my old rough edged self
+'Til I get rid of every single flaw
+I'm gonna be the world's best friend
+I'm gonna go round shaking everybody's hand
+Hey, I'm gonna be the cotton pickin' rage of the age
+I'm gonna be a diamond some day
+Now I'm just an old chunk of coal
+But I'm gonna be a diamond some day
+I'm gonna grow and glow 'til I'm so blue pure perfect
+I'm gonna put a smile on everybody's face
+I'm gonna kneel and pray every day
+At least I should become vain along the way
+Hey, I'm just an old chunk of coal now old
+But I'm gonna be a diamond some day
