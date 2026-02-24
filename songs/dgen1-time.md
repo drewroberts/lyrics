@@ -21,7 +21,7 @@ Of all them larps with 100x dreams
 And I don't beg, I don't chase
 Don't need no crown, I got my grace
 Life's too short to wear a mask
-So I will say my piece and sip my flask
+So I will say my piece and watch you gasp
 'Cause I don't give a damn who don't like me
 This world spins fast and time ain't free
 We're all just sparks in the midnight sky
