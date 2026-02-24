@@ -1,4 +1,3 @@
-
 I've been broke, been bruised, been used
 Had folks talking like they know my shoes
 Ain't no saint, I raised some hell
@@ -14,7 +13,7 @@ Fading out slow, sayin' goodbye
 So pour that whiskey, let it burn fire
 Laugh at the scars that prove I'm alive
 We're all just livin', hm
-On borrowed time
+On degenerate time
 Had some lovers, lost some friends
 Some stories start, some just end
 Every tear I shed don't wash me clean
@@ -30,7 +29,7 @@ Fading out slow, sayin' goodbye
 So pour that whiskey, let it burn fire
 Laugh at the scars that prove I'm alive
 We're all just livin', mmh
-On borrowed time
+On degenerate time
 Yeah, the clock don't stop, it don't rewind
 You blink and you're forty, damn near blind
 So love who you love and cuss when you need
@@ -42,7 +41,7 @@ Burning out bright before we die
 So raise that glass, let it hit just right
 Here is to the truth and the dirt and the fight
 Yeah, we're all just livin'
-On borrowed time
+On degenerate time
 I don't give a-
 I don't give a-
 I don't give a damn
