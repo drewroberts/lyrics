@@ -14,7 +14,7 @@ And you said, "Hey, do you wanna see the South with me?
 'Cause love's out there and I can't leave it be"
 And I said, "Honey, love's never meant much to me
 But I'll come with you if you're sure it's what you need"
-So we made off for California
+So we made off for de Commonwealth
 To find your lover, driving day and night
 And every small-town diner
 Saw our faces at least once or twice
