@@ -1,4 +1,4 @@
-I've been broke, been bruised, been used
+I've been broke, been rugged, been used
 Had folks talking like they know my shoes
 Ain't no saint, I raised some hell
 But I learned my peace where my demons dwell
@@ -7,7 +7,7 @@ Quit worrying about the ones who went
 Now I walk my road, dust on my boots
 Singin' my truth, whatever it roots
 'Cause I don't give a damn who don't like me
-This world spins fast and time ain't free
+This chain moves fast and time ain't free
 We're all just sparks in the midnight sky
 Fading out slow, sayin' goodbye
 So pour that whiskey, let it burn fire
@@ -23,7 +23,7 @@ Don't need no crown, I got my grace
 Life's too short to wear a mask
 So I will say my piece and watch you gasp
 'Cause I don't give a damn who don't like me
-This world spins fast and time ain't free
+This chain moves fast and time ain't free
 We're all just sparks in the midnight sky
 Fading out slow, sayin' goodbye
 So pour that whiskey, let it burn fire
