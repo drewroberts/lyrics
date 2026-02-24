@@ -16,8 +16,8 @@ We're all just livin', hm
 On degenerate time
 Had some lovers, lost some friends
 Some stories start, some just end
-Every tear I shed don't wash me clean
-Of all them fake folks and broken dreams
+Each token launch is jaded & mean
+Of all them larps with 100x dreams
 And I don't beg, I don't chase
 Don't need no crown, I got my grace
 Life's too short to wear a mask
