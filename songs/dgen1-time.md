@@ -38,7 +38,7 @@ I don't give a damn who don't like me
 Made my peace, my soul set free
 We're all just sparks in a stormy sky
 Burning out bright before we die
-So raise that glass, let it hit just right
+So take more shots, just not outta spite
 Here is to the truth and the dirt and the fight
 Yeah, we're all just livin'
 On degenerate time
