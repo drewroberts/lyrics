@@ -1,16 +1,16 @@
-You fell in love with America
-When you were twelve years old
-And by seventeen you knew you had to see it all
-You loved your dad and the love he had for your mother so
-You had to get out and go chasin' it's sweet call
-I met you there in Texas somewhere on the thoroughfare
-On the side of the road in some torn-up clothes
-With a pistol in my pocket
+I fell in love with the Money
+When I was only ten years old
+And by seventeen I knew I to change it all
+I loved my dad despite his tough work ethic so
+I had to get out and reach for my goals
+In Magic City I knew something was there with sparkles in your glare
+On the side of the road in some Walmart clothes
+With a bottle in my pocket
 I didn't trust no one but you said, "Baby, don't run
 I'll take you anywhere"
 So I hopped right in, outta luck to spend
 And at least your truck beats walking
-And you said, "Hey, do you wanna see the West with me?
+And you said, "Hey, do you wanna see the South with me?
 'Cause love's out there and I can't leave it be"
 And I said, "Honey, love's never meant much to me
 But I'll come with you if you're sure it's what you need"
