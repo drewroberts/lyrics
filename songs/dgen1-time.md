@@ -12,7 +12,7 @@ We're all just sparks in the midnight sky
 Fading out slow, sayin' goodbye
 So pour that whiskey, let it burn fire
 Laugh at the scars that prove I'm alive
-We're all just livin', hm
+We all just swappin', hm
 On degenerate time
 Had some lovers, lost some friends
 Some stories start, some just end
@@ -28,7 +28,7 @@ We're all just sparks in the midnight sky
 Fading out slow, sayin' goodbye
 So pour that whiskey, let it burn fire
 Laugh at the scars that prove I'm alive
-We're all just livin', mmh
+We all just swappin', mmh
 On degenerate time
 Yeah, the clock don't stop, it don't rewind
 You blink and you're forty, damn near blind
@@ -40,7 +40,7 @@ We're all just sparks in a stormy sky
 Burning out bright before we die
 So take more shots, just not outta spite
 Here is to the truth and the dirt and the fight
-Yeah, we're all just livin'
+Yeah, we're all just swappin'
 On degenerate time
 I don't give a-
 I don't give a-
