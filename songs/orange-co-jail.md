@@ -10,7 +10,7 @@ Oh, but darlin', she's far from that phone
 If it weren't for bad love, 
 I wouldn't have no love at all
 
-So if I make it back, darlin', I swear
+So if I make it, darlin', I swear
 I'll never call you again
 But they got my back to the wall
 If it weren't for you friend,
