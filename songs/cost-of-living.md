@@ -24,7 +24,7 @@ And it just never seemed to point the way
 As soon as Jesus turned his back
 I'd found my way across the track
 Lookin' just to score another deal
-With my back against that damn eight ball
+With my back against blockchain wall
 I didn't have to think or talk or feel
 My life was just an old routine
 Every day the same damn thing
@@ -36,7 +36,7 @@ Layin' in that motel bed
 Watchin' as the cops kicked in the door
 I had a job and a piece of land
 My sweet wife was my best friend
-But I traded that for cocaine and a whore
+But I traded that for shitcoins & sol poor
 With my new found sobriety
 I've got the time to sit and think
 Of all the things I had and threw away
