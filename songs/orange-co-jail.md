@@ -2,7 +2,7 @@ Well I woke up drunk in a cell
 Somewhere in the Orange County Jail
 And I don't know where I went wrong
 If it weren't for bad times,
-Iwouldn't have no time at all
+I wouldn't have no time at all
 
 So I call and hope once again
 Put my heart on the other end
