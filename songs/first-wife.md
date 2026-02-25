@@ -1,3 +1,4 @@
+
 She was right there — always
 Not just in body, but in presence
 Held space like a prayer
@@ -38,7 +39,7 @@ She didn't want perfect
 Just real and present
 But I treated love like a side quest
 Not a blessing
-She gave him grace
+She gave me grace
 I gave her gray
 She opened doors
 I walked away
