@@ -16,10 +16,10 @@ We the Cypherpunks are dedicated to building anonymous systems. We are defending
 
 Cypherpunks write code. We know that someone has to write software to defend privacy, and since we can't get privacy unless we all do, we're going to write it. We publish our code so that our fellow Cypherpunks may practice and play with it. Our code is free for all to use, worldwide. We don't much care if you don't approve of the software we write. We know that software can't be destroyed and that a widely dispersed system can't be shut down.
 
-Cypherpunks deplore regulations on cryptography, for encryption is fundamentally a private act. The act of encryption, in fact, removes information from the public realm. Even laws against cryptography reach only so far as a nation's border and the arm of its violence. Cryptography will ineluctably spread over the whole globe, and with it the anonymous transactions systems that it makes possible.
+Cypherpunks deplore regulations on cryptography, for encryption is fundamentally a private act. The act of encryption, in fact, removes information from the public realm. Even laws against cryptography reach only so far as a nation's border and the arm of its violence. Cryptography will inevitably spread over the whole globe, and with it the anonymous transactions systems that it makes possible.
 
-For privacy to be widespread it must be part of a social contract. People must come and together deploy these systems for the common good. Privacy only extends so far as the cooperation of one's fellows in society. We the Cypherpunks seek your questions and your concerns and hope we may engage you so that we do not deceive ourselves. We will not, however, be moved out of our course because some may disagree with our goals.
+For privacy to be widespread it must be part of a social contract. People must unite and stand together to deploy these systems for the common good. Privacy only extends so far as the cooperation of one's brothers in society. Cypherpunks want your ideas for a decentralized world. We will not, however, be moved out of our course because people in power disagree with our goals.
 
-The Cypherpunks are actively engaged in making the networks safer for privacy. Let us proceed together apace.
+We're actively engaged in making the networks safer for privacy. Let us proceed together apace.
 
 Onward.
