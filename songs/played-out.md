@@ -1,7 +1,7 @@
 Trail's gone cold, here comes the rain
-Been chewin' on willow bark to hold back the pain
+Been chewin' on Copenhagen to hold back the pain
 Puttin' juice in the wound, lettin' it drain
-Holes in my buckskins, still wet with bloodstains
+Holes in my Converse still wet with bloodstains
 Been pushin' too hard, and goin' insane
 Lord, don't let this journey be all in vain
 
